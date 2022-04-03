@@ -1,0 +1,1 @@
+# Jurnal06_6706213050_Yudhistira
